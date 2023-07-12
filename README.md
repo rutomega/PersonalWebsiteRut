@@ -23,4 +23,4 @@ Social media accounts in the form of instagram and twitter.
 
 You can visit my [personalwebsite](https://www.figma.com/file/wmtac8zJqKKRnJHTVPBuSE/RUT-OMEGA-PURBA?type=design&node-id=0-1&mode=design&t=yjDsP3a7o1R3x9hL-0).
 
-Telah diubah pada 12 juli 2023 pukul 18.20 wib. 
+Telah diubah pada 12 juli 2023 pukul 21.28.
